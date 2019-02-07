@@ -1,0 +1,1 @@
+The honor belongs where the glory lives.
